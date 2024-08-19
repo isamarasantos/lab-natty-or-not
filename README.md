@@ -1,5 +1,3 @@
-
-```markdown
 # Os fundamentos da fotografia 📸
 
 ## 📒 Descrição
